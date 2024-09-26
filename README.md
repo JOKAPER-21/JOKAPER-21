@@ -1,6 +1,2 @@
 # 💫 About Me:
 💜 3D Generalist sharing about my journey and learning in program <br /><br>💜 Studied [B.Sc.Animation](https://www.youtube.com/@jokaper-2153) at Subbalakshmi Lakshmipathy College of Science, Tamilnadu <br /><br>💜 Making 3D Model and sell in online [CG Trader](https://www.cgtrader.com/designers/JOKAPER-21) <br /><br>💜 Currently learning about python for blender <br /><br>💜 My Personal [Instagram](https://www.instagram.com/oivja_21?igsh=MXVncW5zMnBoNno4MQ==) <br /><br>
-
-
-## 🌐 Socials:
-[!(INSTAGRAM)](https://instagram.com/https://www.instagram.com/jokaper21/) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/mynetwork/) [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/https://in.pinterest.com/jokaper21/) [![Reddit](https://img.shields.io/badge/Reddit-%23FF4500.svg?logo=Reddit&logoColor=white)](https://reddit.com/user/https://www.reddit.com/user/AdEffective8862/) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/https://x.com/JOKAPER21) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@https://www.youtube.com/@jokaper-2153) 
